@@ -1,0 +1,2 @@
+# YO-niggaz
+neki repozitorij
